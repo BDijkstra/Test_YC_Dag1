@@ -2,4 +2,12 @@
 
 Hij werkt :-)
 
-Hij werkt niet
+Hij werkt niet --zeker wel
+
+He JJ, Bastiaan hier!!
+Dag bastiaan!
+
+
+Hij werkt :-) --!
+
+
